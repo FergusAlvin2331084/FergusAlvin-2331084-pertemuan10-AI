@@ -1,0 +1,1 @@
+# FergusAlvin-2331084-pertemuan10-AI
